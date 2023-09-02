@@ -46,7 +46,7 @@ We take reasonable measures to protect your personal information from unauthoriz
 
 ### 6. Your Choices
 
-You have the right to access, correct, update, or delete your personal information. You may also contact us at samueltoland13@yahoo.com to exercise these rights or if you have any questions or concerns regarding your personal information.
+You have the right to access, correct, update, or delete your personal information. You may also contact us at ventieventsapp@gmail.com to exercise these rights or if you have any questions or concerns regarding your personal information.
 
 ### 7. Changes to this Privacy Policy
 
@@ -54,4 +54,4 @@ We reserve the right to update or modify this Privacy Policy at any time. When w
 
 ### 8. Contact Us
 
-If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at samueltoland13@yahoo.com.
+If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at ventieventsapp@gmail.com.
